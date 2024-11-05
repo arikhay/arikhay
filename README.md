@@ -2,7 +2,7 @@
 - 👀 I’m interested in computer science positions.
 - 🌱 I’m currently attending an online program through Promineo Tech to improve my CS skills.
 - 📫 You can reach me at ari.hayhurst.work@protonmail.com
-- 😄 Pronouns: (Xie/Xem/Xyr)·(They/Them/Their)
+- 😄 Pronouns: (Xie/Xem/Xyr) · (They/Them/Their)
 - ⚡ Fun fact: I am also a creative writing working on a long-term other-world fantasy adventure epic, among other novels and serials.
 
 <!---
